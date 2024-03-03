@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on data analysis
 - 📫 How to reach me wahuter@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: am a clinician with an associate degree in business information systems. am tring to use data as a bridge between medicine and technology. i support LGBTQ
+- ⚡ Fun fact: am a clinician with an associate degree in business information systems. am tring to use data as a bridge between medicine and technology. i support human rights and freedom
 
 <!---
 tessmungai/tessmungai is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
